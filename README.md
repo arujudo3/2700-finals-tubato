@@ -7,3 +7,4 @@
 ![image](https://github.com/arujudo3/2700-finals-tubato/assets/115630120/078a1e7c-bd31-4fc2-aee6-e009b41c3a66)
 
 ## Screenshot 5.2:
+![image](https://github.com/arujudo3/2700-finals-tubato/assets/115630120/66275541-3b1e-460b-b76c-f761ef71b33e)
